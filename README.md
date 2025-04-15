@@ -17,8 +17,8 @@
 - 🎸 Ouvir música
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qugadz6c7p6yjy6wykyn4mtski&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-- 🎸 Assistir filmes <img hight="10" width="20" align="center" src="https://media.tenor.com/YlX9YBz9FXcAAAAi/ellen-ripley-alien.gif">
-- 🎸 Jogos (KOF 2002!!) <img hight="10" width="20" align="center" src="https://media.tenor.com/HAdTDahjyQEAAAAi/yagami.gif">
+- 🎸 Assistir filmes e series <img hight="10" width="20" align="center" src="https://media.tenor.com/YlX9YBz9FXcAAAAi/ellen-ripley-alien.gif">
+- 🎸 Jogar (KQualquer coisa) <img hight="10" width="20" align="center" src="https://media.tenor.com/HAdTDahjyQEAAAAi/yagami.gif">
 
 
 
@@ -35,7 +35,6 @@
 
 # Me contate! 📩 :
 
-Se quiser entrar em contato comigo, eu só uso essas redes sociaiss! s2
-📷 @guilhernmee - Instagram |
-🕊️ @guilheernmee - Twitter (X)
-<img hight="150" width="220" alt="GIF" align="left" src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnVpN3p5Z3lncW55b2pyZDk2M21jaGI2NTEyeTBxcXFycDZzNTBxdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/cjG98gMyj574A/giphy.gif">
+Se quiser entrar em contato comigo, eu só uso essas redes sociais!
+📷 @tavaresgabriel13 - Instagram |
+
