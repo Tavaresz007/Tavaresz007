@@ -18,9 +18,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qugadz6c7p6yjy6wykyn4mtski&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 - 🎸 Assistir filmes <img hight="10" width="20" align="center" src="https://media.tenor.com/YlX9YBz9FXcAAAAi/ellen-ripley-alien.gif">
-- 🎸 Escrever <img hight="30" width="40" align="center" src="https://media.tenor.com/dh1W3uHt_zsAAAAi/emoji-smiley.gif">
-- 🎸 Tocar guitarra <img hight="10" width="20" align="center" src="https://media.tenor.com/biB4OIcEhDcAAAAi/playing-guitar-cat.gif"/>
-- 🎸 Design <img hight="30" width="40" align="center" src="https://media.tenor.com/4sQhFfVmisAAAAAj/microsoft-microsoft-windows.gif">
 - 🎸 Jogos (KOF 2002!!) <img hight="10" width="20" align="center" src="https://media.tenor.com/HAdTDahjyQEAAAAi/yagami.gif">
 
 
